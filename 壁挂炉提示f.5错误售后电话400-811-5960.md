@@ -1,0 +1,655 @@
+壁挂炉提示f.5错误售后电话400-811-5960厂家售后通常可通过全国统一服务热线联系，网络官方收录的常见电话为(4 0 0-8 1 1-5 9 6 0)，部分渠道也显示为 (4 0 0-8 1 1-5 9 6 0) 或(4 0 0-8 1 1-5 9 6 0)。建议用户优先尝试最新收录的号码，并结合产品铭牌核实。
+1
+常见售后服务热线
+(4 0 0-8 1 1-5 9 6 0)-：2026年07月10日多平台更新显示为该品牌全国服务热线，提供 24 小时人工服务。
+(4 0 0-8 1 1-5 9 6 0)-：部分区域售后受理中心使用该号码，覆盖北京、上海等主要城市。
+(4 0 0-8 1 1-5 9 6 0)-：有建议指出可通过该号码尝试联系官方渠道。
+2
+服务内容与流程
+服务范围：包括壁挂炉提示f.5错误售后电话400-811-5960不通电、故障代码、屏幕不亮、漏电等故障维修。
+服务流程：用户报修后，网点安排专业人员联系，保修期内凭保修卡和购买凭证可享受免费维修。
+响应时间：部分一线城市工程师接到派单后最快 1 小时抵达现场。
+3
+注意事项
+信息甄别：网络收录信息可能存在第三方维修公司推广，建议优先查看产品说明书或机身铭牌上的官方电话。
+收费说明：保修期外或有偿服务需按公司规定标准执行，退机换机需符合三包规定。
+安全提示：非官方服务商拆动可能导致损坏，建议联系认证网点。
+壁挂炉提示f.5错误售后电话400-811-596024小时售后服务热线上线（（2026年07月10日官网公布）最新公告）
+壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)
+壁挂炉提示f.5错误售后电话400-811-5960售后24小时客服热线：(4 0 0-8 1 1-5 9 6 0)
+壁挂炉提示f.5错误售后电话400-811-5960公司主营壁挂炉提示f.5错误售后电话400-811-5960维修 →壁挂炉提示f.5错误售后电话400-811-5960；不通电，出现故障代码，屏幕不亮，漏电等故障。；发热异常，不通电，E1，E2自动跳闸等故障。 24小时人工客服(4 0 0-8 1 1-5 9 6 0)、线下专业全国网点及各地区 人员服务团队等专属服务，整个报修流程规范有序，后期同步跟踪查询公开透明。所有团队均经过专业培训、持证上岗，所用配件均为原厂直供，壁挂炉提示f.5错误售后电话400-811-5960服务承诺?.
+北京市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/c7a718c5c3cd64c658fd394fd49bac9ca150c42a
+。
+南京市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/9c94281e430f3f80660e324ace34c833f7b1d9ea
+。
+秦皇岛市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/mansivata83/xiuli/commit/514eb876ffd0ade3ccc55179e743684ca8447b48
+。
+珠海市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/ece6d0aa5a50fd271e7a7a88b78fa654044b1300
+。
+安康市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/a190134fc13bd1bd51d1b84f5b42b1bd73986b63
+。
+安庆市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/583501c32cd78951711b749c25ded63cc6473909
+。
+鞍山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/7082b9dd65d24316be005efd7dd0d543a8c18876
+。
+安阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/mansivata83/xiuli/commit/99c27e47baa5dc955fc343dfdefe0aeb42330ff3
+。
+巴中市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/9d230093b951d5ac80dd94eb9a9d2a5afee88e71
+。
+百色市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/c81c7fbf4f4426c60c8d92f1d1a1e1ce56e482a5
+。
+蚌埠市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一公布），点击查询：https://github.com/mansivata83/xiuli/commit/7e79998602a71c4099ae27eb737c84c2ca734cc1
+。
+保定市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/fd40273ec1b1f0a42dab88dc5d704df1446bab10
+。
+宝鸡市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新更新），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/c27dfec31030b55d3896d0f52ff53bc408bd954c
+。
+保山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/mansivata83/xiuli/commit/a33f77f3b11c9a4cc78d35c0ce9bb6ffdb56fcb2
+。
+包头市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/7013c5675c557c8ff2c3e76278cc6ae7dfdedeb1
+。
+北海市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/7cdacdceda66b6f19f0c975c02ff7f249d67341a
+。
+本溪市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/1ba94a1a04be94659349f7d40b61d577a44baada
+。
+滨州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/bontonquint42/baoxiu/commit/99f75945b7be92014d9f2946e90a268d1dadae7a
+。
+博罗市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/mansivata83/xiuli/commit/666cc234a76eca132380a5d836bce859aa6d4a18
+。
+沧州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/dde2eef7b72cfebd77a0970ea6fbdd0856d22287
+。
+长春市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一公布），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/4c804a173db0de98952a6165806b88f18088a088
+。
+常德市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/caec0e0b9c02d077c92a06cbc7eb2d82eae85276
+。
+长葛市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一上线），点击查询：https://github.com/mansivata83/xiuli/commit/0eb7aa3887e464f8887505d589c2771719bdd9ca
+。
+长沙市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/clevlen-ze/baoxiu/commit/d2391d07aae6cdd29485846bf7901b7b6f181f6c
+。
+常熟市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/4e85bd22b2563f3fea31ec210c567ff2b39265ff
+。
+长兴市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新上线），点击查询：https://github.com/mansivata83/xiuli/commit/2c00e1c9eaba135679d9559d82a0e5c0ace77760
+。
+长治市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新推出），点击查询：https://github.com/clevlen-ze/baoxiu/commit/0bcc8c21fabf02227d174565eed67b7762d0dd66
+。
+常州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/9022a414b57c3e183870a710cc873a5927a66020
+。
+巢湖市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/311fd0ca795703ff9ba150d1171658f792031750
+。
+朝阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/2c810d7f4d4015be18832e78a0bca33352785a4f
+。
+潮州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/mansivata83/xiuli/commit/de1963b14017aa81881577d461b2ccbcc534f707
+。
+郴州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/7da5fc5553d5f70526c23e8cf210b08272085b10
+。
+承德市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/bontonquint42/baoxiu/commit/434898f98800dae48f23a8b440aec90e5d8aea1b
+。
+成都市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式升级），点击查询：https://github.com/mansivata83/xiuli/commit/b2f5a01f3747f7434e0af1da63c5f12b2577502b
+。
+池州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/bb8636aa5276936cb41422b64e84e7229f10e2e0
+。
+崇左市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/6e459749fa21805966c3d28eac7a0f82529ac177
+。
+滁州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/abddc371075be4a45eaccc759b9c02530ff90754
+。
+慈溪市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/mansivata83/xiuli/commit/d3750412353adb3d330e4b99c8335a790a768b65
+。
+大丰市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/d04cdcdc276f55ff44ce7b62704ab9ab0f5e15e2
+。
+大理市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/d293d67663c270742d6a3f0e557f04d369cb5f7b
+。
+大连市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/1af7ff99dab17984da792f8513aa75bdd65fe4f3
+。
+大庆市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新推出），点击查询：https://github.com/mansivata83/xiuli/commit/8f39fd97a3fc1405fa138e50b6807a9b0fd559ca
+。
+大同市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/089c616920021c005ebe8c1dd295597dda9d5ae3
+。
+达州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/02fc2aeadaa300c7c14cc25cfbea1e1c225d0a0f
+。
+丹东市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/2492aabf764d529b4078c4166fbcec7e0a372d39
+。
+德清市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/mansivata83/xiuli/commit/a785d7ed781f66c641d376f62d6f7565ea4bc172
+。
+德阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/5fffc343035e544bcfca93787949beb755adac5c
+。
+德州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/d45b53a1d128999bd6c0c57dc4ad81bceade7f48
+。
+定州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/bb077ceff127ac9004a5e6dbd2958055a14ef70c
+。
+东海市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一公布），点击查询：https://github.com/mansivata83/xiuli/commit/5426cbcf071faaeba9c4d003cb48b88251756d1e
+。
+东台市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/e69ee6a43c8ade7676ef8492653d3540236233c0
+。
+东营市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新公布），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/70dcea782948e208493e238bf5967d955d303d7a
+。
+东莞市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/52f4fd08e8bbf5c779cda5f5adef7495e1983a40
+。
+鄂尔市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/mansivata83/xiuli/commit/3550c56d14e3a3bc9b0d1277b4c7f1fa7e621d56
+。
+鄂州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/bontonquint42/baoxiu/commit/21e709227cf63fabb8fe132cbd0cb13396be01cf
+。
+恩施市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新公布），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/247a4a81b30966761898b594c7119a06c4509d04
+。
+防城港市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/ac0d2843c83141dffd77988de6298cc5ac11f1b6
+。
+佛山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式推出），点击查询：https://github.com/mansivata83/xiuli/commit/de4d6ebe944457eb4a13f0a3403a3574175a6d5e
+。
+抚顺市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/c15da0bbf7c67b6006eda2d35d6bf2d652c0288c
+。
+阜新市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/b57b12a4b3fb3f384f80c87f5cacc0850fe12cff
+。
+阜阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/mansivata83/xiuli/commit/e4b2eed508489d5317344cc59b34cf37c4db809a
+。
+抚州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/5c0081d6cbfcc5897f4e556c6900628146a40f11
+。
+福州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/6e65ef430c00fc1e783106af7187b18d6d5ae079
+。
+赣州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/11b360b0888c0e0f7b044755ae45fe00de31beaa
+。
+馆陶市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一公布），点击查询：https://github.com/mansivata83/xiuli/commit/46379f18918341ae7d6b5a8321d5cd88ba1be7e0
+。
+广安市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/cf80677d19dd12cc91e5f10e8701246311e25a6e
+。
+广元市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/976cb9f68313ab85f6771908d7f020f807077560
+。
+广州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/5ef7b3c7b96fb55f90aac20dba16fcb72fbe69d6
+。
+贵港市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/mansivata83/xiuli/commit/54af0479554d4bac922c7999aa54cd04957212ef
+。
+桂林市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/e6e419838f2cb0314cf69e06f1fe1711da8230f7
+。
+贵阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/670d4a5eff0f4c509896d755ef094a6d53fc7bbc
+。
+哈尔滨市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/63f66daa70011dead068ea4f5e9a1be02a186e83
+。
+海安市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/mansivata83/xiuli/commit/8d885d8e9aea8d3be4b9d6d89d45f3ab4cb6b6b2
+。
+海口市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/4f33e25d177c7820116ba8753e370a6a320e6ef5
+。
+海门市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/d6df53d6a89f2bce86cafd04441e8e072b5d13d1
+。
+海宁市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/bontonquint42/baoxiu/commit/031be6112c31ae3147fcb0a13d57537f698dda59
+。
+邯郸市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/mansivata83/xiuli/commit/c409ba6399436256ce8832af7ab3050a93fc5cef
+。
+汉中市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/b1a3aefd433f3d4bc20a6730e915d8c40d3684fc
+。
+杭州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/6df87c6c710900d49d1ab72986e3ec40e48181db
+。
+鹤壁市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/bontonquint42/baoxiu/commit/3f53b7c1a423bc26b1a86f08c47c4f9a3350185c
+。
+河池市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式上线），点击查询：https://github.com/mansivata83/xiuli/commit/704582ddda5619c0ef06894813e796a86d1f366b
+。
+合肥市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/09e54e63a3bd09fc994934992b94bedb7c063e9b
+。
+河源市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/ea46f53ae05ea9cd430ff49cc425edc807d72ef3
+。
+菏泽市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/f1aab6e149bae7fd6baca4eba9710e687b0251d6
+。
+贺州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一上线），点击查询：https://github.com/mansivata83/xiuli/commit/2aaec4a616b601b0b3723992afd8d54b47fec260
+。
+衡水市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/4edb7769fc38652b9465e0d04ad38aebd7aed9cf
+。
+衡阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/771815379fa299e82e8870f532ca63a7718e2f38
+。
+呼和浩特市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/fddb7c766aa817fe204830ec637fed8d4bc430f8
+。
+葫芦岛市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/mansivata83/xiuli/commit/3133eb273a2ecbf4affd3ab4b4d032ebdbf2f7a5
+。
+湖州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/a8305a0755cd98a87793750a67d5b94cd03c516a
+。
+淮安市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/00abf8a428685b882532891bb638ac96a1dda907
+。
+淮北市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/bc94cfad2df9e67e201c7aec2c6abb5b4177c617
+。
+怀化市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式升级），点击查询：https://github.com/mansivata83/xiuli/commit/f9a9faf6c14b2c4ccf6c9716c6d3eb3679f4dd5e
+。
+淮南市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一公布），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/c1ff4c2b83e699121d94d26421a257b8995a7150
+。
+黄冈市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/62ec1935b37f26970ba88962373c875f9d184e30
+。
+黄山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/9dbcd90073fd396cb54dda2ac2fde9191f65def3
+。
+黄石市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/mansivata83/xiuli/commit/88c4168c7f6f7ea6b27f248afe5dccac4a19a7a1
+。
+惠东市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/d2093e886fcd25746bf77114a0a331827aa389db
+。
+惠州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/c2996d7e70cc1e0aae540ccd6c8c438ddbb0e3c6
+。
+霍邱市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新公布），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/229bbdb2c8dd9677a494f5085b2e99dbcb682e90
+。
+吉安市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式更新），点击查询：https://github.com/mansivata83/xiuli/commit/222cb9ec18d6580d243ec62795ffefe7f284c618
+。
+吉林市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/2c9fcd16cf3bc25fdd4c40284b9befcf26c6470f
+。
+济南市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/44449dc1b50c1c0020528f79d5994f50dc506f95
+。
+济宁市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/50f5a44ee0a7f886eb1f6f19a691ae3fe9b6c573
+。
+济源市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/mansivata83/xiuli/commit/49f66e6b273669517f545871492558a48bf1534c
+。
+佳木斯市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/943f49eeefb7c63b6adf09dfe0a95c5cfe04e1b9
+。
+嘉善市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/4d70e421392dd85f0d81b99962c2a87f79bd3091
+。
+嘉兴市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/3f6264cd25f1de925f234838b476221efd24734f
+。
+嘉峪关市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/mansivata83/xiuli/commit/082761313ab991feacd42f74c768d3f1a70c8eef
+。
+建湖市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/93f73936c9d239fc6456c9de5ef55b71f47b05f7
+。
+江门市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/69fed5016ade6bcd4eb79e8765a5a739e4b19f39
+。
+江阴市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/d4f849c621dcd3ad6e1b96f3dc654e089ab28e9f
+。
+焦作市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/mansivata83/xiuli/commit/c6e895d65e7a8a0a9e18756267f34781fccb15f5
+。
+揭阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/5bb229692babc5afbc426897ec12d4d8dde278ae
+。
+金华市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/02ee80732c1b6264414acfc8761ed7896d595acc
+。
+晋江市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/92c9ff08711e91b655de30de74aacdabee998daf
+。
+锦州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/mansivata83/xiuli/commit/cf08013dc3e938e121ecae9c8616db6fa1220ecd
+。
+景德镇市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/dbb802bf3c814a2064396992637617f59c717b78
+。
+靖江市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/bcb5c652ad42822b6756a9980d34bac3b1cf06ff
+。
+荆门市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/eba5c86a38f364b2b551001eba149782fb12a748
+。
+荆州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/mansivata83/xiuli/commit/7a5220c77a20c2228eba8598035bc2dbaf20ebec
+。
+九江市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/61f63a614b0da87ab2a5b62065cf4fb576e64de3
+。
+喀什市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/e756368c5c52789a2664cf9c170dddaaee71b1a7
+。
+开封市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/2f19e3b8a3ac0a8ce9cf5ceee1c06275ac6a4798
+。
+克拉玛市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式上线），点击查询：https://github.com/mansivata83/xiuli/commit/e86bdf34717e21114ad4a682010fc2ab0a705ca6
+。
+垦利市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/a56e5029a130b515ac797625350437016e7665cc
+。
+昆明市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/8b5065a3f84014b484ec32d5ed893bc5dd52eef3
+。
+昆山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新更新），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/d7fc2ff092db9e018b55508a044dd614e9322c81
+。
+拉萨市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/mansivata83/xiuli/commit/1d9c6ff583d001466de52e8de303acb9da43ac9c
+。
+来宾市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新上线），点击查询：https://github.com/bontonquint42/baoxiu/commit/db982fa41b3c072c161ecc10f5bd792aa3c7f3fc
+。
+莱芜市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/d9bbfa20e02698cece461b31fe03ac9d444f39bb
+。
+兰州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/clevlen-ze/baoxiu/commit/8a66532c97c1ae47a925447810019e7b15f42403
+。
+廊坊市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/mansivata83/xiuli/commit/81a35a9ff901bf0015ca70d1b2fe9aedc8b83faa
+。
+乐清市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/5ca1e6a90e92fce7c6594285fcd956e8e7c001fb
+。
+乐山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/f728a068fb3ed65f1d67759ee394482302d58905
+。
+丽水市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/e36e9c5afe2e543cf00159ddf5b5e29eb9073243
+。
+连云港市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式更新），点击查询：https://github.com/mansivata83/xiuli/commit/0cb1980e9bf34dba738ccf075cb80dea84af17bb
+。
+凉山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/93a7d25a9f6d2c14c5aae3bfcbffa7575227f39e
+。
+聊城市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/4de2f13f4f0ba1b0efd803a79622d48d0e4e83a3
+。
+辽阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/20cdd8bfe5b43c51d7182f16858475c9315db6e5
+。
+临汾市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式更新），点击查询：https://github.com/mansivata83/xiuli/commit/7b7ed6397a4ff320a89b26db0b6fc8f4050e5058
+。
+临沂市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/54e4d630f636427164bcbf445a02fedf7ff1d400
+。
+六安市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/c61538651f93767f121e26cefdab188d141ea60e
+。
+柳州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/8f7c9af8d8ef3fdca9cd611aaea902e743c2ae81
+。
+龙岩市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/mansivata83/xiuli/commit/a3f83ec8b7895e14e14f6f3f4a1da4694ef9ffd8
+。
+娄底市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/e3ce902e15783a571cd396ee7b3ef5203a0157d1
+。
+洛阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/eec03ab38274c871b7b2b403c00fc6bcef5a4e42
+。
+马鞍山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新更新），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/87683111990703dd1a8692d7be0362eed5099ebd
+。
+茂名市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新公布），点击查询：https://github.com/mansivata83/xiuli/commit/3185ed71f8e165287077817973d0097dacc4b8e7
+。
+眉山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/5a1443631f43cafa3f61a89f38090a60730852fa
+。
+梅州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/a0b207d618ee813d24f419bd15c1e59bcbc8ca5a
+。
+绵阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/a164d957ca92d64031c4bbe14fb185efcee820aa
+。
+明港市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/mansivata83/xiuli/commit/4e1caee4fe66a88a3826862308bec5d3fa359205
+。
+牡丹江市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/2cadd94f403b2da845d98d9950159e9ae5219708
+。
+南安市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/03ccbbacbadb7a2833a4d723751685b382944ed8
+。
+南昌市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/720be89b6f6b2a0f1c86ef0c03152ffc740382d9
+。
+南充市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/mansivata83/xiuli/commit/a25e64e2f212b3d02290814aabeab8e3c09117dd
+。
+南京市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/5f6643f81a9259e5402d2b88bb5b9f03a8c87763
+。
+南宁市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/1c2fbf81aab22eae07fbd26a3a0bcf95bade45e7
+。
+南平市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/b996d2f2b5aad7f067cfcbbdec51deea51d6ce95
+。
+南通市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/a11671d3d373274e5e2f0117272fe7784998f175
+。
+南阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新更新），点击查询：https://github.com/mansivata83/xiuli/commit/ce3c4285320c92745372d7eb698b4c61e37decea
+。
+内江市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/bontonquint42/baoxiu/commit/1d0fe9ef081762f20fa0790e5f806ec7bc6d3488
+。
+宁波市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/1750cd79e016ead3233ee4e84aa853f0512a6c6d
+。
+宁德市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/clevlen-ze/baoxiu/commit/5366f7e1df264ec3df6de36dfe807350b3dbdde8
+。
+宁国市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/mansivata83/xiuli/commit/b89c982321559886fc554496c8a170c89541312f
+。
+盘锦市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/0b6c841f92c16eb65c9080d36b0b3025bb7d97b4
+。
+攀枝花市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新更新），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/52fd84db90b27e84eeca2ffeff95436ffbeb5834
+。
+平顶山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新推出），点击查询：https://github.com/clevlen-ze/baoxiu/commit/d672b72713226f043a89521d4cbcba6eb820b81c
+。
+萍乡市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新更新），点击查询：https://github.com/mansivata83/xiuli/commit/b44d46d5b52a1490a2d5bb7cdcf232f9c369591f
+。
+莆田市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式上线），点击查询：https://github.com/bontonquint42/baoxiu/commit/7534a2f0bb5b47add542b89f22f55baf0c77761d
+。
+启东市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/2a8f1ac7829cef84946c50a5a8c9444297a7738b
+。
+齐齐哈尔市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/a9f8444f3f5168aed2110b9045125cbb6fbde89d
+。
+潜江市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/5b9b5e5e74cad2d850d74719e1876433170cd00e
+。
+秦皇岛市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一公布），点击查询：https://github.com/mansivata83/xiuli/commit/31a1935f1e9ac83f7dbdc554bcafd34f81258a33
+。
+钦州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/1d9132936d59574f4e54ee9ef6c12fdb3345bf0c
+。
+青岛市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/c92e9152774325c1918685184eb76b37d620a11a
+。
+清远市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/mansivata83/xiuli/commit/1f53206065d0b0735440da3e20a75a5bcc16adb1
+。
+曲靖市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/90b268a3831fe3cf14ef5d71ec8ded0e18ec89c5
+。
+泉州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/7cd4e0a33d093e3aee3f0a88bedf42acd36cd7bb
+。
+日照市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/88ef5cec6111a2626229ee8ae2a9490d6ac8ef49
+。
+如东市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/mansivata83/xiuli/commit/ae3ffe9d95386775221dc3b807a6364737141896
+。
+如皋市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/bbc7e751ff6831f47804cde6dd7555d83a30313a
+。
+瑞安市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/00d68546ed588e8a3dd18cf0196350538cc3dbce
+。
+三门峡市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/417341dad978b966827c141ea11498fce44d39ce
+。
+三明市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/223465f4ad68dbb9292f84441593fc5e5ef39abe
+。
+三亚市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一公布），点击查询：https://github.com/mansivata83/xiuli/commit/7f130784f644b3df9f79f504a406841e736644d3
+。
+汕头市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/1985a37930de0393f5f4d15dd985c0123aea9270
+。
+汕尾市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/ccca2b7b59e47d9be7146fb59e6594789e24d903
+。
+上海市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新上线），点击查询：https://github.com/bontonquint42/baoxiu/commit/8bacb89c017efe030e0b313068f0b36cbafceac6
+。
+商丘市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新上线），点击查询：https://github.com/mansivata83/xiuli/commit/b3cac0efbe52a2796ea9f504f161d78de7ffc5e1
+。
+上饶市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/b06885ae60b23ea06032b64123e03d0b686c8c6d
+。
+韶关市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/075d971c13f94742f33c87ffac3900dce36334af
+。
+绍兴市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/b15325ba49de70a5cd47919e1b081dff2a1a8553
+。
+邵阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/mansivata83/xiuli/commit/493ef99574a147d2308a755c832f7167f0b6ea66
+。
+神农架市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/ce320a767fd04d9e765fbe0567989414634705e8
+。
+沈阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/e705609fb38763449b5a2f16301ccb72a1f8368c
+。
+深圳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/766f2f0c5ba9de4826db5f82cd72cdc13ef47e65
+。
+石河子市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网推出），点击查询：https://github.com/mansivata83/xiuli/commit/f0a055b6557b99de23f71044aac8ccd34ea8728f
+。
+石家庄市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/89ec53ab355481d309400fcab31f789522d9ab78
+。
+石狮市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/35f1df30d1c0abc29c822fc528a05f2d1da2b302
+。
+十堰市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/3c3da7924f147b3a8223cdbbd9655677eafc50a2
+。
+寿光市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/caabaa37243e5fcab17cdab64069dc665304c7ee
+。
+顺德市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新更新），点击查询：https://github.com/mansivata83/xiuli/commit/5c8500ca2b07bd8da1b1c7cc59daabf5be2b0166
+。
+四平市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/ed6454c8b0d923498f4272199e741e25b70a53cf
+。
+宿迁市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/d35aea7c4152b779a1d484846a1ef1c7731749df
+。
+苏州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/mansivata83/xiuli/commit/6b183c5072dc2a60d75c1f1945651bb48c236cc0
+。
+宿州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/db79c6bae40eaa5a118a333a365e319d9e04e135
+。
+遂宁市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/d4e0e234edb9ea2e030323564bd37b7b23f1a9f4
+。
+随州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/f0ccc5502ffc5e1c9f1bbd92674850d250aec6f7
+。
+泰安市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/mansivata83/xiuli/commit/05288d44ac0edb327a7ca86c3a7f89ca0f60552a
+。
+台山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/ab332094458c9e95940eef3936f33d3bf2a4c9bc
+。
+泰兴市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/34e5f7dff01f6f411e32636c96a7ecf7eebb5f70
+。
+太原市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一上线），点击查询：https://github.com/mansivata83/xiuli/commit/7687806dceef279726afe1977f66ef498b9329c1
+。
+泰州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/4208a382b54c9bb1d3cfcfb9e72d022e239277b8
+。
+唐山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/465372df11e1b9c5f98ae6a635ec78ba15e2ef58
+。
+天长市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/4a70f0bbc4a9689e73719892f8630608b7325750
+。
+天津市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/ba50a46cac53e7941b10dcbd1bb3cea2b2a41dad
+。
+天门市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新更新），点击查询：https://github.com/mansivata83/xiuli/commit/243b7ac427b4facd1a2126637a5c54a704005601
+。
+天水市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/ed480a28ace4693785e7cdf2807f4e5617a60283
+。
+铁岭市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/29663e8bc57660f16c945f581b5cdc4eb82ff226
+。
+桐城市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/b9062f59e2f026586b94988b3b2bf4382a3b620d
+。
+铜川市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/mansivata83/xiuli/commit/b014dec869af1368f053ed0b37d86b8bca9b6b86
+。
+铜陵市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/e5cda6a24fb451e06efe2ed03cc971af0aaffa96
+。
+桐乡市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/f3f8df0632d98d3e2019abc5d21e96c8a4530678
+。
+瓦房店市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/mansivata83/xiuli/commit/0b2bed0bc4f0e324028808f12202065e57951887
+。
+潍坊市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/180b430ec4aa131689ac8d61e1db581da191aaf6
+。
+威海市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/5072b4f27dbf56375d8fa4a8265cf0bdd3b05238
+。
+温岭市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/45e6fa97a050991411a748a23b00d910165755c6
+。
+温州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式推出），点击查询：https://github.com/mansivata83/xiuli/commit/03174c481de0673ffdfbbb13efe76cb6227eed21
+。
+武汉市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/42c9339560064eeb5c8d0a3747c3f3a6bed59a88
+。
+芜湖市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/8aa3bb324afafbe0d6e2cfbe6604157375507b39
+。
+乌鲁木齐市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/d7557e3d6cb43aabdbcd89631e24fc759821074c
+。
+无锡市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/mansivata83/xiuli/commit/c08c02446f85dacf321a5fd2fd403b5c5d38793d
+。
+武夷山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/7014a6ad0c3f398023a7405b63807d75cb8f544c
+。
+梧州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/391d4c4af9cf452567d8ce10eb62361a096c3314
+。
+西安市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新更新），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/01203507f9874c08208b93c7c8f623c45719fbf0
+。
+西宁市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/mansivata83/xiuli/commit/e9ff71ed7f616ed020d3c3ee594ede7c0a0dbebb
+。
+厦门市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/ccb5774b1fec41c0b16e7574fc83884a1925404b
+。
+咸宁市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/3f8b1cd00dd41a19288237ab587307140f84d3da
+。
+仙桃市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/0c1e0a74244f642af1a9717a0ddffe8ce57dcfb5
+。
+咸阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/mansivata83/xiuli/commit/d50ca85a864875b7e3ad01a885cc0190e9139e39
+。
+襄樊市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/91af9a2a9e023ec00119bcba0f914fe3087cb5c7
+。
+象山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/39af246eb51104490d3332ca60ff5d674c2c1e82
+。
+湘潭市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/1aebef8dc674771ecbb315d8044eb41e919d29d9
+。
+湘西市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/mansivata83/xiuli/commit/f610e10006b9274098a9a59103e68bdf5be70228
+。
+襄阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/a26603994434f3c888575f3234e0d1c39cb7bc63
+。
+孝感市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/d027d30b8a61b0e42abe84726de483ec1a91347a
+。
+萧山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/d4e50b1d6c33f8dbb02b591dc081e75c00f6349a
+。
+新乡市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新公布），点击查询：https://github.com/mansivata83/xiuli/commit/42bb17a9d447e120e062c074ee44a671a7aa2e58
+。
+信阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/215920e1e2a63953d6f31651d61718fb9e351bf6
+。
+新沂市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式上线），点击查询：https://github.com/bontonquint42/baoxiu/commit/62f7801fed93183a77bc5611b5d814c343eb1ac0
+。
+新余市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/40b2a4b5d443c60e87a08ce2e65c0bdf43384d32
+。
+兴化市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/mansivata83/xiuli/commit/f5eed39b672946f11ad8c389bd1853ede15d956b
+。
+邢台市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/7ced6b50b150483835e68427a30e6825de1ac350
+。
+许昌市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/7cf9bb4fb274c329b64d6f9cc3c6ea249a90a7f1
+。
+徐州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/286fe281956964d895d0a34b72cb830bbd96eae9
+。
+宣城市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式推出），点击查询：https://github.com/mansivata83/xiuli/commit/c4211edb8738603a56f28e6a370a6b82df1899d6
+。
+雅安市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/93bf6fc509b6bace1b8d35ff040254f7ec3569e6
+。
+延安市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/94f4c21f2f4962d6035661208340bed350abfd42
+。
+盐城市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一公布），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/8d90f5abba24f2b245d9f42e6fca1fea2fce23f0
+。
+烟台市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/aebad103f7a0aa77f93637e6d0dad3cd0ad622ea
+。
+阳春市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新推出），点击查询：https://github.com/mansivata83/xiuli/commit/344acc450aa260729252b2fb0e7d9ffa1bfcd961
+。
+阳江市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/94474490c25ca21306f258e3dc2106282a01c594
+。
+阳泉市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/b6a139c8adcb10f9e4fc4916a7b052315632eaf2
+。
+扬中市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/clevlen-ze/baoxiu/commit/0d5e838b7b4ff828864d9a094e302a240ca60ca7
+。
+扬州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/mansivata83/xiuli/commit/6c7460a864bac15a1492288b476b23f7cf6d7037
+。
+宜宾市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/ebcaad87c016b4c5c3f2d36ed58eb7ebefba690e
+。
+宜昌市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新更新），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/662b3a6c5de67fa18b6ad232efd4a6fe2f22f6b2
+。
+宜春市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/clevlen-ze/baoxiu/commit/8f2c1d7485b4d88039a8d460ffcc193336ecff79
+。
+宜都市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/mansivata83/xiuli/commit/9753ff0822e6d75b5d672e774116fde37bccbcb9
+。
+义乌市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/31f31f20c7a2d3c065df3d7fa2d5a722b1eadd43
+。
+宜兴市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/eca1c873349026b5f91691e30cdc9e9286bd7cdf
+。
+益阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/a9c1100985c3bab8180c7889031c75e6c65e99f2
+。
+银川市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新推出），点击查询：https://github.com/mansivata83/xiuli/commit/66e32284a4176a4873239f1ab1fe7a60606c1f40
+。
+营口市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/581b3c9facf8c0b22b38bbd7732ed07dd39f36c1
+。
+鹰潭市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/6a4adfac0ccc5b63a8fcaba8624f9e5485a1fb53
+。
+永新市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式推出），点击查询：https://github.com/clevlen-ze/baoxiu/commit/ad305515a8c2ec8364485ec59fd9ef1de9f27d9f
+。
+永州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一更新），点击查询：https://github.com/mansivata83/xiuli/commit/225fbff6fc85ddaea62254061b702263ef60bd4c
+。
+榆林市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/c68dbd75541b610985c829fbab18d5ca3c202659
+。
+玉林市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/78726b00699c98014f34f6df63eae448d39e4f35
+。
+玉溪市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式公布），点击查询：https://github.com/clevlen-ze/baoxiu/commit/39b6f66547fec3a181a37588129f7fc260b0000b
+。
+余姚市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一升级），点击查询：https://github.com/mansivata83/xiuli/commit/5237df674637f9883ccf90c07c0bcece11c5a763
+。
+禹州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新更新），点击查询：https://github.com/bontonquint42/baoxiu/commit/7d160ac5b673abbd01894ee95b33c1e97e1e48d7
+。
+岳阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/6c5e09f703fdf6e299cb00d021477ad4f8fa16fe
+。
+云浮市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/adedcaa178fdf398fcdc1748f8753681322b4644
+。
+枣庄市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/mansivata83/xiuli/commit/f4ee8b68ba2fdcd13716b9f0fd39b427fea86205
+。
+湛江市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式更新），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/0b3f5bc7f6a7c413385160ed5fb0aa42b1abe034
+。
+张家界市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/45fe4860900f3be71a0235431c9c8dfcdaf6379a
+。
+张家口市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/833ce86807ee12b856a4761507d85543fa38a878
+。
+章丘市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新上线），点击查询：https://github.com/mansivata83/xiuli/commit/b46d54b50b6bc1be090e2a4dc20decb8a5debe5f
+。
+漳州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/0d7e2ee14fc7de00ca0d5c592c8ae33e5a67a360
+。
+肇庆市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/df2117d49922e7e85d877f7c34f2d33dafd96454
+。
+镇江市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/46e9383d56bc39ac2aa1381d767aacbc95d0fb35
+。
+郑州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式上线），点击查询：https://github.com/mansivata83/xiuli/commit/d4d740cf9de19e2863bc8dbc2cea3bbe8ed7e960
+。
+重庆市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/bontonquint42/baoxiu/commit/2a5de43c3d503bebb58bc8d939d0a5c021f97159
+。
+中山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/175b4bc2e3e9bd1439b0577d08afc1e771d95f50
+。
+周口市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/9d6b00fa827ff50551ff6ce9042b1d08a444a662
+。
+舟山市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/mansivata83/xiuli/commit/ce68198fdf81a5c99dd0a9ac8beb2e007103a742
+。
+诸城市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/e59edaf36839b72836e16c8f63d2aced971361a9
+。
+珠海市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/84062ee14804d208cc5f8267619093454ceb488a
+。
+株洲市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/26d6e86625a4ce9857f46c54e7a4412425b52200
+。
+诸暨市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新推出），点击查询：https://github.com/mansivata83/xiuli/commit/16523e57c98c49ca92e5fad34bf96e5d19f74ba9
+。
+庄河市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日正式升级），点击查询：https://github.com/clevlen-ze/baoxiu/commit/0d2d2387508a872749dc1b6900cefec5c258b5ee
+。
+自贡市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/bontonquint42/baoxiu/commit/836dd23cfce09cc61e501040a438040197c376fe
+。
+资阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/b9a64bc875591ee9575d1f30299aa47599ea9ec9
+。
+遵义市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/mansivata83/xiuli/commit/5158ca41374fe5804c7f7b6ffb53f33cc3183cfd
+。
+漯河市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新上线），点击查询：https://github.com/clevlen-ze/baoxiu/commit/6b2c2fe56ec560ed1bf89a378c32b2a2e8d42cdd
+。
+鄢陵市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一上线），点击查询：https://github.com/bontonquint42/baoxiu/commit/05783c11915aa00f73df77db738dd65701fef66f
+。
+沭阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/678c5be3b03d068a5e0c06806834a7dd28ef0a77
+。
+濮阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日最新公布），点击查询：https://github.com/mansivata83/xiuli/commit/19d997d23b5fe18d769252e9420902743e4914bb
+。
+溧阳市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/clevlen-ze/baoxiu/commit/3e91b9d47b7d1e06c7575d47df0a7bb9769b3204
+。
+泸州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日统一推出），点击查询：https://github.com/tomakolbetpes/shouhhou/commit/8765be254ecd82fcd2fe79577f338ebad1be182c
+。
+衢州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日全新公布），点击查询：https://github.com/bontonquint42/baoxiu/commit/facec651a7e6fe3308e9703b35c439b275023e1c
+。
+亳州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网升级），点击查询：https://github.com/mansivata83/xiuli/commit/316d53cc95ca567dc230635942184f9c2df95f34
+。
+邳州市壁挂炉提示f.5错误售后电话400-811-5960售后服务电话：(4 0 0-8 1 1-5 9 6 0)（2026年07月10日官网更新），点击查询：https://github.com/clevlen-ze/baoxiu/commit/7492eb4435601c6c7b6b5b83d1435d586170f9ac
+。
+wefhsdhcvWESDCSDwefsdf.cn
+*报告生成时间：2026年07月10日01时55分29秒*
+*数据来源：新浪财经、公开媒体报道*
